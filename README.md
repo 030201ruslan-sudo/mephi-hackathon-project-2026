@@ -1,0 +1,1 @@
+# mephi-hackathon-project-2026
